@@ -5,7 +5,7 @@
 
 ### Switzerland
 1. **[Graanul Invest](https://www.indexbox.io/store/switzerland-wood-pellets-market-analysis-forecast-size-trends-and-insights/)**: A significant player in the European wood pellet market, Graanul Invest supplies Switzerland with high-quality wood pellets. They are known for their sustainable production methods and extensive distribution network​
-2. **[Bioenergy Europe]https://enplus-pellets.eu/)**: Although primarily an association, Bioenergy Europe plays a vital role in certifying and promoting wood pellet companies in Switzerland. They ensure quality and sustainability through their ENplus certification scheme​
+2. **[Bioenergy Europe](https://enplus-pellets.eu/)**: Although primarily an association, Bioenergy Europe plays a vital role in certifying and promoting wood pellet companies in Switzerland. They ensure quality and sustainability through their ENplus certification scheme​
 3. 
 
 
